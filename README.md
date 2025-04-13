@@ -21,7 +21,7 @@ to the creative coding community,
 who in my darkest times,
 offered me kindness.
 
-You showed me
+You reminded me
 it was okay
 to be soft,
 and to explore without judgment
