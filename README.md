@@ -23,7 +23,7 @@ offered me kindness.
 You reminded me
 it was okay
 to be fluid,
-and to explore without judgment
+and to explore without judgment.
 
 You saved me.
 ***
