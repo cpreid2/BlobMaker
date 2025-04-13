@@ -18,7 +18,7 @@ and perhaps to the child within you.
 
 A thank-you
 to the creative coding community,
-to those, in my darkest times,
+who in my darkest times,
 offered me kindness.
 
 You showed me
