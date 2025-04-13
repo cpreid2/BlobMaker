@@ -1,4 +1,4 @@
-# BlobMaker
+# Blob Maker
 
 We begin life as blobs—
 fluid and curious,
@@ -10,7 +10,7 @@ we never asked for.
 
 We are told to remain static,
 to stay within the lines.
-
+***
 This playful tool
 is a gift to the child
 I once was—
@@ -28,7 +28,7 @@ to be soft,
 and to explore without judgment
 
 You saved me.
-
+***
 With gratitude and wonder,
 I offer you this gift.
 
