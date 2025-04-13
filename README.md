@@ -1,7 +1,5 @@
 # Blob Maker
 
-https://cpreid2.github.io/BlobMaker/index.html
-
 We begin life as blobs —
 fluid and curious,
 boundaries undefined, shapes unformed.
@@ -37,3 +35,5 @@ and to find freedom
 in the joyful,
 judgment-free dance
 of becoming.**
+
+https://cpreid2.github.io/BlobMaker/index.html
