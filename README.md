@@ -4,8 +4,7 @@ We begin life as blobs —
 fluid and curious,
 boundaries undefined, shapes unformed.
 
-But slowly, our edges become rigid —
-lines drawn by judgment, by fear, by rules
+But slowly our edges become rigid, lines drawn by judgment, by fear, by rules
 we never asked for.
 
 We are told to remain static,
