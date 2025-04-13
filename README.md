@@ -29,10 +29,10 @@ and to explore without judgment
 You saved me.
 ***
 
-May Blob Maker inspire you
+**May Blob Maker inspire you
 to push gently at your own edges,
 to wobble,
 and to find freedom
 in the joyful,
 judgment-free dance
-of becoming.
+of becoming.**
