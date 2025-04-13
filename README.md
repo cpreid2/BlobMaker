@@ -1,10 +1,10 @@
 # Blob Maker
 
-We begin life as blobs—
+We begin life as blobs —
 fluid and curious,
 boundaries undefined, shapes unformed.
 
-But slowly, our edges become rigid -
+But slowly, our edges become rigid —
 lines drawn by judgment, by fear, by rules
 we never asked for.
 
