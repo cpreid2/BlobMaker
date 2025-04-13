@@ -16,10 +16,9 @@ is a gift to the child
 I once was—
 and perhaps to the child within you.
 
-A thank-you note
+A thank-you
 to the creative coding community,
-to those generous souls
-who, in my darkest times,
+to those, in my darkest times,
 offered me kindness.
 
 You showed me
