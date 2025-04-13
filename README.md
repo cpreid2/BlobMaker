@@ -28,8 +28,6 @@ and to explore without judgment
 
 You saved me.
 ***
-With gratitude and wonder,
-I offer you this gift.
 
 May Blob Maker inspire you
 to push gently at your own edges,
