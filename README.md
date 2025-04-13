@@ -10,7 +10,7 @@ we never asked for.
 We are told to remain static,
 to stay within the lines.
 ***
-This playful tool
+Blob Maker
 is a gift to the child
 I once was—
 and perhaps to the child within you.
