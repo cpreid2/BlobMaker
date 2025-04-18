@@ -10,23 +10,6 @@ we never asked for.
 We are told to remain static,
 to stay within the lines.
 ***
-Blob Maker
-is a gift to the child
-I once was—
-and perhaps to the child within you.
-
-A thank-you
-to the creative coding community,
-who in my darkest times,
-offered me kindness.
-
-You reminded me
-it was okay
-to be fluid,
-and to explore without judgment.
-
-You saved me.
-***
 
 **May Blob Maker inspire you
 to push gently at your own edges,
